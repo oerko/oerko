@@ -1,5 +1,5 @@
 - 👋 Hi, my nick is @oerko and I love the code but I´m still a beginner
-- 👀 I’m interested in languages English and Japanese, intermediate and basic repectively, my language mother is Spanish
+- 👀 I’m interested in languages English and Japanese my level is intermediate and basic repectively, my language mother is Spanish
 - 🌱 I’m currently learning ...
 - 📫 How to reach me ...
 
